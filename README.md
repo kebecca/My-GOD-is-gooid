@@ -1,1 +1,1 @@
-# My-GOD-is-gooid
+# My-GOD-is-good
